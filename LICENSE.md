@@ -1,4 +1,4 @@
-#  
+#  creatures of sonaria Script smart is the best creatures of sonaria Script, featuring no cooldown and silent aim. Safe and powerful for all your needs.
 
 
 
